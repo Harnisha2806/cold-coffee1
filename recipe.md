@@ -1,0 +1,2 @@
+Cold Coffee Recepie :
+take a juicer add chilled heavy milk , sugar , chocolate serup , milk cream / ice-cream , then mix coffee bean powder and some water add this mixture with other ingrediants. properly close the cap of juicer and turn on the switch for about a miniute . open the cap take the chilled cold coffee into the glass and garnish it with the chocolate pieces.
